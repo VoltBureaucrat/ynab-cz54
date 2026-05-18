@@ -1,4 +1,4 @@
-# 
+# custom QuickBooks para PC scripts é o melhor QuickBooks para PC scripts com demonstrativo de resultados e balanco patrimonial. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
